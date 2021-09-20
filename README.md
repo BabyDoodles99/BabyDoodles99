@@ -1,4 +1,4 @@
-<b>I am currently learning to advance the Solana NFT space.</b>
+<b>Learning to advance the Solana NFT space.</b>
 
 Feel free to reach out!
 
@@ -7,7 +7,7 @@ Feel free to reach out!
 
 <br></br>
 
-🚧 - Building Rogue Prints - 🚧
+🚧 - Long Term Project: Rogue Prints - 🚧
 
 - Join Our Early Community: https://discord.gg/64mWqGau
 
